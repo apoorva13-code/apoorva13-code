@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Apoorva
 - 🚀 I’m interested in learning new skills
 - 🌱 I’m currently learning Web Design
-- 📫 How to reach me [LinkedIn](https://www.linkedin.com/in/apoorvapatil13/)
 - ⚡ Fun fact: I love to try new coffee shops in the city
